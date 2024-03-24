@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Usha2642
+- 👋 Hi, I’m @Ushadevanga
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning we
 - 💞️ I’m looking to collaborate on ...
